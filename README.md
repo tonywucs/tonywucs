@@ -10,7 +10,7 @@
 
 ⚡ Fun fact: I used to be a highly competitive Overwatch player for my Collegiate Program.
 
-🎮 My hobbies: I love playing Video games (RPGs), watching anime, and listening to music.
+🎮 My hobbies: I love playing video games (RPGs), watching anime, and listening to music.
 
 📫 Reach me @ 
 
